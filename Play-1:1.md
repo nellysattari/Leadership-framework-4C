@@ -10,6 +10,9 @@ Fill in the below for discussion ahead of our 1on1's each week:
 - **Kudos and recognition of others**
 
 ## 1:1 Game
+https://www.veryhappythings.co.uk/101-questions/
+
+## 1:! Question bank
 https://jasonevanish.com/2014/05/29/101-questions-to-ask-in-1-on-1s/
 
 ## Questions
