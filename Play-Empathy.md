@@ -1,5 +1,7 @@
 # Why would I need the Empathy play
 As a leader, your perspective is not always the reality.  Learning how to understand the point of view of others (their thoughts, feelings, opinions, ideas, experiences) is an important way to develop your Empathy.  It will improve your interactions with others, help you foster genuine compassion and enable you connect positively with your team. 
+## Sympathy vs Empathy 
+https://youtu.be/KZBTYViDPlQ
 
 ## Instruction
 PARTICIPANTS
